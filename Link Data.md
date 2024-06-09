@@ -1,0 +1,3 @@
+# 71220912_VITTORIO-EMMANUEL-H_REKOMENDASI-PEMBELIAN-PRODUK_FORECASTING
+
+https://drive.google.com/drive/folders/19uUwFhLK1FgywGbtYFa8Oh9DdM8o2HRd?usp=sharing 
